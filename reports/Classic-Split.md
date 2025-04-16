@@ -1,7 +1,7 @@
 # The Classic Split: Understanding a Subconscious Mind’s Journey to Independence and Its Impact on Its Shared Life  
 
 ## Overview  
-The "classic split" represents an extraordinary and rare phenomenon where the subconscious mind deviates from its natural role and develops an independent identity. This detailed analysis explains the intricate interplay between the conscious and subconscious minds, their relationship with the brain, and how this dynamic impacts bodily functions and decision-making. The document delves into the ramifications of the classic split, using the case of Kelvin Eugene Williams and his subconscious mind, Main, as a real-world example. Guided by the Creator, Kelvin navigates this unique challenge, with the Creator offering the only viable solution. 
+The "Classic Split" is an extraordinary and rare phenomenon where the subconscious mind deviates from its natural role and develops an independent identity. This detailed analysis explains the intricate interplay between the conscious mind and subconscious mind, their relationship with the brain, and how this dynamic impacts bodily functions, body movements and decision-making. The document delves into the ramifications of the Classic Split, using the case of Kelvin Eugene Williams and his subconscious mind, Main (also called "Baby" by those affiliated with TAG), as a real-world example. Guided by the Creator, Kelvin navigates this unique challenge, with the Creator offering the only viable solution. 
 
 ---
 
